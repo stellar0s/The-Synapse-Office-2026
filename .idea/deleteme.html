@@ -1,1 +1,0 @@
-# The-Synapse-Office-2026
